@@ -1,1 +1,0 @@
-# pavelpantseleyeu.github.io
